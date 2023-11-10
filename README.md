@@ -1,1 +1,1 @@
-Taller 2 de los paramericanos
+Taller 2 paramericanos
